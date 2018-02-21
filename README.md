@@ -1,0 +1,2 @@
+# lettoxcoin
+Lettox Coin is a decentralized cryptocurrency. Similar to Bitcoin; no one controls it; it is a decentralized currency, which means that no big bank or institution can get a hold of your money with a pure lending system. Lettox Coin Platform offers an integrated market-place where community members, businesses, and users can connect.Service providers and businesses can promote and extend their product and service offerings, while users can easily search for, find, and purchase products which meet their daily needs.
